@@ -15,6 +15,27 @@ http://v.cuctv.com/specials/55.html
 
 下集 http://www.tudou.com/programs/view/65S4teHmaQw/
 
+角色表
+-------
+
+小和尚——柳峰
+
+尼姑——A米拉 B Melody
+
+皮诺乔——王小贱
+
+阿德连诺——柳峰
+
+老实人——郭鹏翔
+
+少妇——小尼姑
+
+女儿——晴晴
+
+婴儿——王芳
+
+解说人——Sunny
+
 以下是剧本
 ----------
 
