@@ -1,11 +1,21 @@
 《思凡》
 =====================
 
-孟京辉
+视频
+--------
 
+瘦和尚版
 
 http://v.cuctv.com/specials/55.html
 
+
+胖和尚版
+
+上集 http://www.tudou.com/programs/view/n0FH8MvQsAg/
+下集 http://www.tudou.com/programs/view/65S4teHmaQw/
+
+以下是剧本
+----------
 
 　　众人：昔日有个白莲僧，救母亲临地狱门，借问灵山多少路，十万八千有余零。（优美肃穆地吟唱）南无阿弥陀佛……
 
